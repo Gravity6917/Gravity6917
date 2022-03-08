@@ -2,4 +2,4 @@
 - 👀 I’m interested in video games, Japan animation, hang out and travel
 - 🌱 I’m currently learning HTML5, CSS, JS
 - 💞️ I’m looking to collaborate on any project that can be interesting 
-- 📫 How to reach me by mail at Yanis.chatre69@gmail.com
+- 📫 You can reach me by mail at Yanis.chatre69@gmail.com
